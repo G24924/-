@@ -1,1 +1,1 @@
-# -
+Dobriy den'!
